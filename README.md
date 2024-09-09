@@ -1,1 +1,1 @@
-## shit vebsite by denisasrl
+## shit website by denisasrl
